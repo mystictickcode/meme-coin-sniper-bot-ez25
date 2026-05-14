@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with AI-powered meme coin sniper bot | dex-sniping + honeypot-detection, the #1 meme coin sniper bot. Includes dex-sniping and honeypot-detection for a faster
 
 
 
